@@ -1,5 +1,5 @@
-• 👋 Hi, I’m @DevPullz070
+• 👋 Hi, I’m @BreezoDev
 
 • 💻 I am a Full Stack Developer
 
-• 📫 How to reach me Pullz#0700
+• 📫 How to reach me Breezo#3201
